@@ -1,3 +1,5 @@
+> [!NOTE]
+> Also, you can use them in like those videos where they don't have any moment of silence in it.
 # 🔊 Sound effects pack
 Sound effects pack collected by fixedpriorities\
 I also got them off of soundboards.\
